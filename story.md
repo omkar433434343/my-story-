@@ -5,3 +5,5 @@ It was a hot summer day and it was very hot. He got tired. To get some rest he s
 The cap seller woke up after some time. He found that his caps were missing. By chance he looked up and saw the monkeys wearing his caps. He tried his best to get his caps back but all his efforts were in vain.
 
 Suddenly an idea struck his mind. He took off his own cap and threw it on the ground. Monkeys did the same as they are imitators. The cap seller collected all his caps and went away happily.
+
+Intelligence works wonders.
